@@ -2,7 +2,7 @@
 
 ## Sou graduada em Geografia e Arte
 
-### Atuo no NRE de Maringa no CRTE
+### Atuo no NRE de Maringá - CRTE
 
 [http://www.nre.seed.pr.gov.br/modules/conteudo/conteudo.php?conteudo=58]
 
